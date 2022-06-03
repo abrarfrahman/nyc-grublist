@@ -14,7 +14,6 @@
 - Phebes
 - Dan and John's Wings
 - The 13th Step
-- The Cock (Pride !!!)
 - Craft+Carry Upper West Side
 
 **The Del**
