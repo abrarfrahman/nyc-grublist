@@ -1,5 +1,22 @@
 # nyc-grublist
 
+**Times Square**
+- Halal Cart (Mahmoud chefs it UPPPPPPPPPP)
+- Zon Cafeteria (lol)
+
+**NoHo / Cooper Square**
+- Gyu
+- Dim Sum Palace
+- Mighty Quinn's BBQ
+- Makiiny Thai
+
+**Bars**
+- Phebes
+- Dan and John's Wings
+- The 13th Step
+- The Cock (Pride !!!)
+- Craft+Carry Upper West Side
+
 **The Del**
 - Thursday Kitchen – Korean fusion, famous for their capri sun drinks (usually a long line and they don’t take reservations so get there early)
 - Joe’s Pizza + Prince Street Pizza – People say these are some of the best pizza spots in NYC
@@ -12,3 +29,7 @@
 
 **Queens**
 - Tandoor Cafe
+
+**Groceries**
+- Honest Chops (Butcher)
+- New Yorker's Foodmarket
